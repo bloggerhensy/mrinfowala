@@ -1,1 +1,1 @@
-# mrinfowala
+[Mrinfowala](https://mrinfowala.com/) is a Professional informational Platform. Here we will provide you only interesting content, which you will like very much. We're dedicated to providing you the best of informational, with a focus on dependability and jazz & zong internet packages .
